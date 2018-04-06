@@ -1,4 +1,3 @@
-# Be Kind, Be Cool
 
 ## Español
 Si estas aquí es porque has oído hablar del movimiento #BeKindBeCool quieres que tu entorno sea mejor, quieres dejar la rabia, el ego malsano de lado, y ser una persona cívica, una persona que se preocupa por los demás y que confía en que algún día el mundo será un lugar mejor donde vivir.
