@@ -1,6 +1,6 @@
 
 ## Español
-Si estas aquí es porque has oído hablar del movimiento *#BeKindBeCool* quieres que tu entorno sea mejor, quieres dejar la rabia, el ego malsano de lado, y ser una persona cívica, una persona que se preocupa por los demás y que confía en que algún día el mundo será un lugar mejor donde vivir.
+Si estas aquí es porque has oído hablar del movimiento <strong>#BeKindBeCool</strong> quieres que tu entorno sea mejor, quieres dejar la rabia, el ego malsano de lado, y ser una persona cívica, una persona que se preocupa por los demás y que confía en que algún día el mundo será un lugar mejor donde vivir.
 
 El funcionamiento es fácil, vamos a intentar cambiar nuestros malos hábitos que perjudican a la comunidad y vamos a contar como lo estamos haciendo por Twitter con el hasthag *#BeKindBeCool*, con un poco de suerte podremos influir en otras personas a que ellos también sean *#BeKindBeCool* y que estos a su vez inspiren a mas gente.
 
