@@ -9,10 +9,10 @@ Piénsalo, puedes hacer un mundo mejor para la gente que quieres con pequeños g
 Ejemplos:
 
 - No aparques en la puerta del hospital cuando vayas de visita aunque haya sitio, ¡Otra persona en urgencias puede necesitar ese sitio!
-- No hagas adelantamientos indevidos, ni apures hasta el último segundo para entrar en un carril para una salida, solo ahorras un par de minutos y generas situaciones de riesgo y ansiedad.
+- No hagas adelantamientos indebidos, ni apures hasta el último segundo para entrar en un carril para una salida, solo ahorras un par de minutos y generas situaciones de riesgo y ansiedad.
 - Deja pasar esa persona que solo tiene una barra de pan y un paquete de salchichas delante tuya en la fila del supermercado.
 - No te cueles en una fila aunque tengas la oportunidad.
-- Inspiranos con mas ejemplos, con el hasthag veamos hasta donde podemos llegar.
+- Inspiranos con más ejemplos, con el hasthag *#BeKindBeCool*, veamos hasta donde podemos llegar.
 
 ### ¡ Pero otros pueden aprovecharse de estos pequeños gestos !
 Si, muchos otros, pobres diablos lo harán, no comprenden estos gestos, y hasta se jactarán de tomarnos el pelo.
@@ -23,6 +23,6 @@ El hecho de influir positivamente en una vida ¿No es suficiente?, y si además 
 
 Puede que nunca te enteres, pero sin duda, estarás haciendo del mundo un lugar un poquito mejor y a ti una persona mas feliz.
 
-Hacer un mundo mejor es un gran premio, pero sin duda, el premio mas tangible, el mas directo, es que serás una persona mas felíz, menos estresada y veras la vida con una calma diferente.
+Hacer un mundo mejor es un gran premio, pero sin duda, el premio mas tangible, el mas directo, es que serás una persona más feliz, menos estresada y verás la vida con una calma diferente.
 
-Yo ya soy mas feliz, ¿Y tu?
+Yo ya soy más feliz, ¿Y tú?
